@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-PT. Adaku Berkah Sejati built the Adaku app as a Free app. This SERVICE is provided by PT. Adaku Berkah Sejati at no cost and is intended for use as is.
+PT. Adaku Mandiri Sejati built the Adaku app as a Free app. This SERVICE is provided by PT. Adaku Mandiri Sejati at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
